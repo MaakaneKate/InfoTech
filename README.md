@@ -1,1 +1,1 @@
-# InfoTech
+# InfoTech page
